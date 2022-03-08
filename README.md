@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @elysiatann
 - 👀 I’m interested in expanding my knowledge
-- 🌱 I’m currently learning how to cook
+- 🌱 I’m currently learning how to cook, coding, software development
 - 💞️ I’m looking to collaborate on Instagram 
 - 📫 How to reach me elysiatanyinying@gmail.com
 
